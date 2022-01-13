@@ -1,7 +1,7 @@
 # Lmao
 
-Haha get fucked
+My bals
 
 # Lol
 
-no
+Girls give me headaches, boys give me head
